@@ -1,6 +1,6 @@
 <h1>Chi phí khám nam khoa hết bao nhiêu tiền</h1>
 
-<p><a href="http://phongkhamdaidong.vn/chi-phi-kham-chua-benh-nam-khoa-het-bao-nhieu-tien-53.html"><strong>Chi phí khám nam khoa</strong></a> được nhiều đấng mày râu quan tâm, do nhu cầu kiểm tra nam khoa ngày càng cao. Chi phí thăm khám nam khoa hết bao nhiêu tiền? Mời bạn đọc cùng theo dõi bài viết sau đây nhé.</p>
+<p><a href="https://www.linkedin.com/pulse/chi-phi-kham-nam-khoa-het-bao-nhieu-tien-o-dau-tot-pham-huan">Chi phí khám nam khoa</a> được nhiều đấng mày râu quan tâm, do nhu cầu kiểm tra nam khoa ngày càng cao. Chi phí thăm khám nam khoa hết bao nhiêu tiền? Mời bạn đọc cùng theo dõi bài viết sau đây nhé.</p>
 
 <p>&nbsp;</p>
 
