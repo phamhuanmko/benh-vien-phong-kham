@@ -16,7 +16,7 @@
 
 <p>&ndash; Tâm lý dễ chịu, sẵn sàng</p>
 
-<h2>Chi phí thăm khám nam khoa hết bao nhiêu tiền?</h2>
+<h2><a href="https://www.linkedin.com/pulse/chi-phi-kham-nam-khoa-het-bao-nhieu-tien-o-dau-tot-pham-huan">Chi phí khám nam khoa</a> hết bao nhiêu tiền?</h2>
 
 <p>&ndash; khám nam khoa hết bao lăm tiền nó còn dựa vào khá nhiều nguyên tố như: cơ sở y tế, chuyên gia trực tiếp tiến hành khám, trị (nếu mắc bệnh)&hellip;</p>
 
